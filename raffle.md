@@ -4,6 +4,7 @@ Nithursan Elamuhilan nithursan.elamuhilan@mail.utoronto.ca
 Kalindu, kalindu.decosta@mail.utoronto.ca
 Sakshaat Choyikandi, sakshaat.choyikandi@mail.utoronto.ca
 Jackson Han, jackson.han@mail.utoronto.ca
+Ralph Samson Lal, ralph.samsonlal@mail.utoronto.ca
 Sharar Noor, sharar.noor@mail.utoronto.ca
 Brian Au, brian.au@mail.utoronto.ca
 Matthew Michaud, matthew.michaud@mail.utoronto.ca
