@@ -1,3 +1,4 @@
+Jason Hu, jasonn.hu@mail.utoronto.ca
 Ralph Maamari | ralphpal@hotmail.com
 Nithursan Elamuhilan nithursan.elamuhilan@mail.utoronto.ca
 Kalindu, kalindu.decosta@mail.utoronto.ca
